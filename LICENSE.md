@@ -1,4 +1,4 @@
-# 
+# kaizen automatic Script offers the most advanced kaizen Script, with no cooldown and auto-sell. Perfect for dominating any match.
 
 
 
